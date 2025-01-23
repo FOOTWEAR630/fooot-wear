@@ -1,1 +1,1 @@
-# fooot-wear
+# foot-wear
